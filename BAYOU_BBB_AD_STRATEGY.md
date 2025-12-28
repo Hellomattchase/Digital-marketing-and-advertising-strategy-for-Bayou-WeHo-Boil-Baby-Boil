@@ -596,3 +596,22 @@ Steps:
 Ad Platforms: IG Reels, TikTok, YouTube Shorts - DoorDash/UE for BBB
 Target Hours: 3:30–7PM
 Target Areas: Abbey, Barry’s, Rocco’s, Starbucks WeHo, Equinox
+BBB + BAYOU CATER CONTENT TO:
+
+The Bayou WeHo 🌈
+	•	Audience: Queer community + allies in 90069 and beyond.
+	•	Tone: Inclusive, fun, nightlife-forward.
+	•	Focus: Cheapest drinks in West Hollywood, BOGO specials (Sat 4–6pm, Sun 2–4pm), cocktails, slushies, seasonal specials, events.
+	•	Keywords/Trends: “West Hollywood nightlife,” “queer-friendly bar,” “happy hour West Hollywood,” LGBTQIA+ hashtags + local pop culture.
+
+Boil Baby Boil 🦞
+	•	Audience: All people of the West Hollywood (90069) region.
+	•	Tone: Playful, food-centric, high-energy.
+	•	Focus: Cajun seafood boils, value-driven wine & spirits, delivery, “boil at the bar” vibe.
+	•	Keywords/Trends: “Seafood boil West Hollywood,” “best Cajun in LA,” “West Hollywood food delivery,” foodie hashtags.
+
+Content Guidelines
+	•	Viral-style hook (short, meme-ready, or trend-driven).
+	•	Strong local anchor (90069, West Hollywood, nightlife, Cajun, queer community).
+	•	Hashtags: Mix local tags, trending TikTok/Instagram tags, SEO-friendly keywords.
+	•	Optimized for TikTok, Instagram, Google indexing (semantic + localized).
